@@ -4,3 +4,5 @@
 ## Perubahan by Vanjaya wkwkwk
 
 ##WOW BISA FORKKKK
+
+## Ikutan dong "alfathin"
