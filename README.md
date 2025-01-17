@@ -4,3 +4,4 @@
 ## Perubahan by Vanjaya wkwkwk
 
 ##WOW BISA FORKKKK
+##lapar
